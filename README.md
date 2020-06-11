@@ -1,1 +1,0 @@
-# legatusmun.github.io
